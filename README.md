@@ -16,7 +16,7 @@ I'm always growing to become an even better professional, combining technical sk
 
 ## 📧 Let's Connect
 
-- 🖇️ LinkedIn: [in/danilobrito37/](https://www.linkedin.com/in/danilobrito37/)
+- 🖇️ LinkedIn: [in/danilobritoc/](https://www.linkedin.com/in/danilobritoc/)
 - 📬 E-mail: danilocesarqtube@gmail.com
 
 ## 🛠️ Technologies and Tools
